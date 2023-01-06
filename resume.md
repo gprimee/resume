@@ -9,7 +9,13 @@ H.S. Degree (2018 - 2022)
 
  
 ## EXPERIENCE
- 
+**Sanmina**
+
+Mechanical Assembler (September  2022 - December 2022)
+
+* Worked alongside coworkers to create parts and test systems to develop high quality products for companies.
+* Inspect boards and chips
+
 **Water Country**
 
 Lifeguard, Aquatics (April 2022 - September 2022, season end)

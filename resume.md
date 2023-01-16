@@ -1,5 +1,5 @@
 # Garrett R Crawford
-[Github](https://github.com/gorimee) | crawford.garrett04@gmail.com
+[Github](https://github.com/gprimee) | crawford.garrett04@gmail.com
 
 ## EDUCATION
  

@@ -9,6 +9,13 @@ H.S. Degree (2018 - 2022)
 
  
 ## EXPERIENCE
+**Surcheros**
+
+Team/Crew Member(August 2023 - January 2024)
+
+- Work in groups of 5-6 to deliver quality food to customers.
+- Ensure team is properly on task and keep product stocked for new customers.
+
 **Mr.Wish**
 
 Barista (March 2023 - June 2023)
@@ -17,6 +24,13 @@ Barista (March 2023 - June 2023)
 * Cook boba and other snacks and prepare fruits and other toppings for the drinks.
 * Clean dishes and the shop to improve the look and keep the environment healthy.
 
+**Patty B's**
+
+Host/Server(January 2023 - March 2023)
+
+- Communicate to coworkers about tables and food.
+- Clean tables and sweep.
+- Seat customers as they walked through the door.
 **Sanmina**
 
 Mechanical Assembler (September  2022 - December 2022)
@@ -44,7 +58,7 @@ Crew Member (November 2020 - October 2021)
 
 Dietary Aide (September 2019 - July 2020)
 
-* Worked in a group of 2-3, cared for ~30 residents in the facility.
+* Worked in a group of 2-3, served ~30 residents in the facility.
 * Communicated to residents and took care of their needs.  Familiarized myself with my coworkers and kept a friendly work environment.
  
 ## AWARDS

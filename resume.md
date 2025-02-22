@@ -9,6 +9,22 @@ H.S. Degree (2018 - 2022)
 
  
 ## EXPERIENCE
+Maine Accessibility Corperation**
+
+Maintenance Technician(October 2024 - January 2025)
+
+- Install and maintain high-quality stairlifts & critical access ramps for customers
+- Measure stairs and ground to deliver accurate quotes.
+
+
+**Walmart**
+
+Automotive Technician(July 2024 - October 2024)
+
+- Fast-paced work environment, swapping tires, oil changes, etc.
+- Communicate with customers effectively to ensure happiness.
+- Cash people out at the register, and schedule appointments.
+
 **Surcheros**
 
 Team/Crew Member(August 2023 - January 2024)
